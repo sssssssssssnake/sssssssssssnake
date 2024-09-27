@@ -11,6 +11,8 @@ TSAMS + LAES (int if kind)
 
 INT: FNAF COMMUNITY! , 
 FELLOW JJK PEEPS , 
-ANYONE WHO ISNT IN THE DNI LIST!!
+ANYONE WHO ISN'T IN THE DNI LIST!!
+
+feel free to c+h whenver i'm alone!! kisses allowed and w2i random ppl :3
 
 this is still a wip so BYEE!!!
